@@ -3,7 +3,7 @@
 [教你炒股票 1：不会赢钱的经济人，只是废人](https://github.com/26844/chzhshch-108-plus/blob/main/108/0187-486e105c01000461-001.md)\
 [教你炒股票 2：没有庄家，有的只是赢家和输家](https://github.com/26844/chzhshch-108-plus/blob/main/108/0188-486e105c01000467-002.md)\
 [教你炒股票 3：你的喜好，你的死亡陷阱！](https://github.com/26844/chzhshch-108-plus/blob/main/108/0190-486e105c0100047p-003.md)\
-[教你炒股票 4：什么是理性？理性是干出来的！](https://github.com/26844/chzhshch-108-plus/blob/main/108/0202-486e105c010004g8-004.md)\ 
+[教你炒股票 4：什么是理性？理性是干出来的！](https://github.com/26844/chzhshch-108-plus/blob/main/108/0202-486e105c010004g8-004.md)\
 [教你炒股票 5：市场无须分析，只要看和干！](https://github.com/26844/chzhshch-108-plus/blob/main/108/0206-486e105c010004i9-005.md)\
 [教你炒股票 6：缠中说禅如何在五粮液、包钢权证上提款的](https://github.com/26844/chzhshch-108-plus/blob/main/108/0355-486e105c010006sw-006.md)\
 [教你炒股票 7：给赚了指数亏了钱的一些忠告](https://github.com/26844/chzhshch-108-plus/blob/main/108/0379-486e105c0100075q-007.md)\
