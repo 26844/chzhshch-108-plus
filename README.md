@@ -15,7 +15,7 @@
 [教你炒股票 13：不带套的操作不是好操作](https://github.com/26844/chzhshch-108-plus/blob/main/108/0397-486e105c010007gw-013.md)\
 [教你炒股票 14：贵州茅台均线买点实战](https://github.com/26844/chzhshch-108-plus/blob/main/108/0398-486e105c010007hd-014.md)\
 [教你炒股票 15：没有趋势，没有背驰](https://github.com/26844/chzhshch-108-plus/blob/main/108/0402-486e105c010007j8-015.md)\
-[教你炒股票 16：中小资金的高效买卖法](https://github.com/26844/chzhshch-108-plus/blob/main/108/0408-486e105c010007mr-016.mds)\
+[教你炒股票 16：中小资金的高效买卖法](https://github.com/26844/chzhshch-108-plus/blob/main/108/0408-486e105c010007mr-016.md)\
 [教你炒股票 17：走势终完美](https://github.com/26844/chzhshch-108-plus/blob/main/108/0412-486e105c010007p1-017.md)\
 [教你炒股票 18：不被面首的雏男是不完美的](https://github.com/26844/chzhshch-108-plus/blob/main/108/0419-486e105c010007t8-018.md)\
 [教你炒股票 19：学习缠中说禅技术分析理论的关键](https://github.com/26844/chzhshch-108-plus/blob/main/108/0420-486e105c010007u7-019.md)\
